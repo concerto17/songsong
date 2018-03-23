@@ -1,4 +1,4 @@
 # Songsong Hi
-## 좋아하는 음식
+## favorite
 ![Alt text](/imgs/images.jpg "caffe latte")
 
