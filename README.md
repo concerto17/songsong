@@ -19,6 +19,4 @@ The cafe latte is really good, it is soft, I do not have a favorite brand,
 I just use Seoul milk and it looks delicious! 
 Seoul milk contains little sodium but it is delicious.
 
-
-
-
+Thank you, I love you!
